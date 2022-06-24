@@ -2,6 +2,6 @@
 
 I'm a IT student playing around with things. I make something, i post it here.
 
-My discord: jasiuu#4138
+My discord: jasiuu#0101
 
 ⚠️ Danger! Large amount of trolling! ⚠️
